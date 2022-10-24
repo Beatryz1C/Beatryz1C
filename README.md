@@ -1,0 +1,5 @@
+- Olá! eu sou Beatryz
+- Estou á colocar em pratica meus conhecimentos 
+- Atualmente tenho aprendido sobre Programação
+- Procurando mais conhecimento
+- Entre em contato comigo (beatryz.galo@escola.pr.gov.br)
